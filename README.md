@@ -20,4 +20,4 @@ Glasses are really versatile. First, you can have glasses-wearing girls take the
 
 ## Contact
 
-You can contact me through the email on my GitHub profile, or /u/muazamkamal on reddit.
+You can contact me through the email on my GitHub profile, or [/u/muazamkamal](https://www.reddit.com/user/muazamkamal) on reddit.
